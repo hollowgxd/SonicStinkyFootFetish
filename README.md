@@ -1,2 +1,2 @@
-# SonicStinryFootFetish
+# SonicStinkyFootFetish
 temp
